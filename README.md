@@ -15,7 +15,6 @@ A passionate **System Analyst & Developer** who loves building digital solutions
 
 ## Let's Connect!
 
-- 💼 GitHub: [github.com/adityarhmdsyh](https://github.com/adityarhmdsyh)
 - 📧 Email: adityarahmadiansyah09@gmail.com
 - 💬 Open for collaboration & discussion
 
